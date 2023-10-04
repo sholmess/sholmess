@@ -1,16 +1,18 @@
-### Hi there 👋
-
-<!--
-**soul-xml/soul-xml** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# about-me
+<p align="center">
+  <img src="https://i.pinimg.com/564x/6e/8b/3d/6e8b3dd7cbb5fa167fcca2a46d5ff952.jpg" width="300px">
+  <br><br><b>A send off? God, you're sentimental.</b>
+  </p>
+<p align="center">
+  <b>soul</b>/corrupt 🎸 he/him 🎸 <a href="https://pronouns.cc/@punishercross">introj</a>
+  <br><br>
+<b>whisper to interact</b>
+<br>better to whisper me anyway lol
+<br><b>i'm cuddle/hide friendly</b>
+<br><br>
+<a href="https://rentry.co/wolfwood_">list of interests</a>
+<br><br><b>minors limit interaction with me</b>
+<br>+ i hide freely
+<br>
+<br><i>So much for making me the bad guy.</i>
+</p>
