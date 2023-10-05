@@ -11,8 +11,8 @@
 <br><b>i'm cuddle/hide friendly</b>
 <br><br>
 <a href="https://rentry.co/wolfwood_">list of interests</a>
-<br><br><b>minors limit interaction with me</b>
-<br>+ i hide freely
+<br><br><b>minors limit interaction with me</b> (friends excluded)
+<br>+ i hide freely don't be weird
 <br>
 <br><i>So much for making me the bad guy.</i>
 </p>
