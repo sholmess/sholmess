@@ -1,6 +1,6 @@
 # about-me
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/fridaynightfunking/images/3/3e/PPPDGlitchyRedIcon.png/revision/latest?cb=20231102212913&format=original" width="200px">
+  <img src="https://static.wikia.nocookie.net/fridaynightfunking/images/3/3e/PPPDGlitchyRedIcon.png/revision/latest?cb=20231102212913&format=original" width="150px">
   <br><br><b>I'm going to show you how it feels to be unable to choose your own fate.</b>
   </p>
 <p align="center">
