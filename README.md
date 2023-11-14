@@ -4,12 +4,12 @@
   <br><br><b>I'm going to show you how it feels to be unable to choose your own fate.</b>
   </p>
 <p align="center">
-  <b>wolfwood</b>/steven (<a href="https://en.pronouns.page/@vashwood-">+</a>) ♰ any prns ♰ 20
+  <b>wolfwood</b>/red (<a href="https://en.pronouns.page/@vashwood-">+</a>) ★ any prns ★ 20
   <br>not strict with how i'm addressed though
   <br><br>
 <b>whisper to interact</b> cause i'm offtab
 <br>it's better to whisper me anyway if you want anything
-<br><b>i'm cuddle/hide friendly,</b> love the company. the more the merrier
+<br><b>i'm cuddle/hide friendly,</b> i have a touch comfort
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
