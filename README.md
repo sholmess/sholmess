@@ -1,6 +1,6 @@
 # about-me
 <p align="center">
-  <img src="https://i.imgur.com/J89ELna.png" width="500px">
+  <img src="https://i.imgur.com/J89ELna.png" width="450px">
   <br><br><b>Herlock Sholmes is proud to present...</b>
   </p>
 <p align="center">
